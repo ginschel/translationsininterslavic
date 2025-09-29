@@ -9,7 +9,7 @@ fontsize: 12pt
 geometry: a4paper, margin=2.5cm
 linestretch: 1.3
 colorlinks: true
-linkcolor: blue
+linkcolor: black
 urlcolor: blue
 citecolor: blue
 header-includes:
