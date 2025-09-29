@@ -8,6 +8,10 @@ mainfont: "Times New Roman"
 fontsize: 12pt
 geometry: a4paper, margin=2.5cm
 linestretch: 1.3
+colorlinks: true
+linkcolor: blue
+urlcolor: blue
+citecolor: blue
 header-includes:
   - \usepackage{parskip}
   - \usepackage{titlesec}
@@ -34,7 +38,7 @@ I’m releasing this translation under an **open license**:
 * **You are free to distribute and edit this translation**, including correcting any errors you may find.
 * All I ask is that **you credit me as the original translator**, and that **you clearly indicate any changes you make** when redistributing the modified version.
 
-To facilitate collaboration, I have uploaded the full translation as a **Markdown file in a [GitHub repository](https://github.com/ginschel/translationsininterslavic/Evangelje_Jana_isv.md)**, where editors can easily track, suggest, or make improvements.
+To facilitate collaboration, I have uploaded the full translation as a **Markdown file** in this [GitHub repository](https://github.com/ginschel/translationsininterslavic/blob/master/Evangelje_Jana_isv.md), where editors can easily track, suggest, or make improvements.
 
 ### Final Words
 
