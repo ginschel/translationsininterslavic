@@ -64,46 +64,46 @@ September 29, 2025
 9 On jest to istinno světlo, ktoro osvěča každogo člověka, ktory prihodi na svět.
 10 Na světu byl, i svět črěz njego učinjeny jest; ale jego svět ne poznal.
 11 K svojej vlastnosti prišel, ale jego vlastni jego ne prijali.
-12 Ale koliko jego prijelo, dal jim tu moč, da by se stali synami Božjimi, to jest tym, kto věri v jego ime.
-13 Kto ne od krvi, ni od voli těla, ni od voli muža, ale od Boga narodženi sut.
-14 I to Slovo tělom se stalo, i žilo medžu nami, i viděli jesmo jego slavu, slavu kako jednorodnogo od Otca, polno milosti i pravdy.
-15 Jan svědčil o njem, i rěkl glasno: On jest to, o ktorom pověděl: Ktory poslě mně prijde, stal se prěd mnoju; bo byl prvy.
+12 Vsim, ktori jego prijeli, dal tu moč, da by se stali synami Božjimi, to jest tym, ktori věret v jego ime.
+13 Ktori ne od krvi, ni od voli těla, ni od voli muža, ale od Boga narodženi sut.
+14 I to Slovo tělom se stalo, i žilo medžu nami, i jesmo viděli jego slavu, slavu jednorodnogo od Otca, polno milosti i pravdy.
+15 Jan svědčil o njem, i rěkl glasno: On jest tym, o ktorom pověděl: Ktory poslě mně prijde, stal se prěd mnoju; bo byl prvy.
 16 I od njego polnosti vsi jesmo prijali i lasku za lasku.
-17 Zakon bo črěz Mojžeša jest dany, a laska i pravda črěz Jezusa Hristosa stala se.
-18 Boga nikto nikogda ne viděl: on jednorodny syn, ktory jest v lonu Otcevskom, nam pověděl.
-19 A to jest svědočstvo Jana, kogda poslali Židi iz Jeruzalema svečenniki i Levity, da by jego se spytali: Kto ty jesi?
+17 Ibo zakon črěz Mojžeša jest dany, a laska i pravda črěz Jezusa Hristosa stala se.
+18 Boga nikto nikogda ne viděl: jednorodny syn, ktory jest v lonu Otcevskom, nam pověděl.
+19 A to jest svědočstvo Jana: poslali Židi iz Jeruzalema svečenniki i Levity, da by jego se spytali: Kto ty jesi?
 20 I vyznaval, a ne odrěkl, a vyznaval, že ja ne jesm Hristos.
 21 I spytali jego: Čto že ty? Ty jesi Elijaš? A on rěkl: Ne jesm. A oni: Prorok ty? i odgovoril: Ne jesm.
-22 Rěkli jemu tako: Kto že ty jest, da byhmo odgovor dali tym, ktori nas poslali? Čto povědaš o sobě?
-23 Rěk: Ja jesm glasom, ktory kriči na pustynji: gotovite put Gospodina, kako pověděl prorok Izaijaš.
+22 Rěkli jemu tako: Kto že ty jesi, da byhmo odgovor dali tym, ktori nas poslali? Čto povědaš o sobě?
+23 Rěkl: Ja jesm glasom, ktory kriči na pustynji: gotovite put Gospodina, kako pověděl prorok Izaijaš.
 24 A ti, ktori byli poslani, byli od Farizejev.
 25 I spytali jego i rěkli jemu: Čemu že ty krestiš, jestli ty ne jest Hristos, ni Elijaš, ni prorok?
 26 Odgovoril jim Jan, govorivši: Ja krešču vodoju; ale posrěd vas stoji toj, ktorogo vy ne znajete.
 27 Toj jest, ktory poslě mně prijde, ktory prěd mnoju byl, ktoromu ja ne jesm godny, da byh razvezal obuvi jego.
 28 To se stalo v Betaniji za Jordanom, kde Jan krestil.
-29 A zautra uzrěl Jan Jezusa idučego k sobě, i rěk: Vot Baranok Božje, ktory gladi grěh světa.
+29 A zautra uzrěl Jan Jezusa idučego k sobě, i rěkl: Vot Baranok Božje, ktory gladi grěh světa.
 30 Toj jest, o ktorom ja pověděl, že ide za mnoju muž, ktory stal se prěd mnoju; bo byl prvy.
-31 Ja jego ne znal, no on byl objavjeny Izraelju, tomu ja prišel krestiti vodoju.
-32 I svědčil Jan: Viděl jesm Duha shodivšego kako golub s neba, i ostal se na njem.
-33 Ja jego ne znal. No ktory poslal mene krestiti vodoju, rěkl mi: Na kogo bys viděl Duha shodivšego i ostavšego se na njem, on jest tym, ktory kresti Duhom Svetym.
-34 I viděl jesm i svědčil jesm, že on jest Syn Božji.
+31 Jesm jego ne znal, no on byl objavjeny Izraelju, tomu ja prišel krestiti vodoju.
+32 I svědčil Jan: Jesm viděl Duha shodivšego kako golub s neba, i ostal se na njem.
+33 Jesm jego ne znal. No ktory poslal mene krestiti vodoju, rěkl mi: Na kogo bys viděl Duha shodivšego i ostavšego se na njem, on jest tym, ktory kresti Duhom Svetym.
+34 I jesm viděl i svědčil, že on jest Synom Božjem.
 35 Zautra snova stal Jan tam i dva jego učenikov.
 36 I viděvši Jezusa idučego, rěkl: Vot Baranok Božji.
 37 I slyšali jego oba učenikov, i šli za Jezusom.
-38 I obrativši se Jezus i uviděvši je za soboju iduči, rěkl jim: Čego iščete? A oni mu rěkli: Rabi! (to jest: Učitelj), kde byvaješ?
+38 I obrativši se Jezus i uviděvši jih za soboju iduči, rěkl jim: Čego iščete? A oni mu rěkli: Rabi! (to jest: Učitelj), kde byvaješ?
 39 Rěkl jim: Pojdite i ogledajte. Prišli i viděli, kde žil, i ostali pri njem ovogo dnja; bylo okolo desetoj časiny.
 40 A byl Andrej, brat Šimona Petra, jedin iz dvoh, ktori to slyšali od Jana, i šli za njim.
-41 On najprvo strětl Šimona, brata svojego, i rěkl mu: Našli jesmo Mesijaša, (to jest Hristosa).
+41 On najprvo strětl Šimona, brata svojego, i rěkl mu: Jesmo našli Mesijaša, (to jest Hristosa).
 42 I privedl go do Jezusa. A pogledavši na njego Jezus, rěkl: Ty jesi Šimon, syn Jana; ty budeš nazyvany Kefas, to jest Petr.
 43 A zautra htěl Jezus pojdti do Galileji, i našel Filipa i rěkl mu: Pojdi za mnoju.
 44 A Filip byl iz Betsajdy, iz města Andrejovogo i Petrovogo.
-45 Filip našel Natanaela i rěkl mu: Našli jesmo ovogo, o ktorom pisal Mojžeš v zakonu i proroki, Jezusa, syna Josefa, iz Nazareta.
+45 Filip našel Natanaela i rěkl mu: Jesmo našli ovogo, o ktorom pisal Mojžeš v zakonu i proroki, Jezusa, syna Josefa, iz Nazareta.
 46 I rěkl mu Natanael: Či može iz Nazareta byti něčto dobro? Rěkl mu Filip: Pojdi, i ogledaj!
 47 Viděvši Jezus Natanaela prihodivšego k sobě, rěkl o njem: Vot istinno Izraelec, v ktorom ne jest prědavstva.
-48 Rěkl mu Natanael: Odkud me znaš? Odgovoril Jezus i rěkl mu: Prvo než te Filip prizval, kogda byl jesi pod smokvoju, viděl jesm te.
-49 Odgovoril Natanael i rěkl mu: Učitelj! Ty jesi Syn Božji, ty jesi kralj izraelski.
+48 Rěkl mu Natanael: Odkud me znaš? Odgovoril Jezus i rěkl mu: Prvo než te Filip prizval, kogda byl jesi pod smokvoju, jesm viděl te.
+49 Odgovoril Natanael i rěkl mu: Učitelju! Ty jesi Synom Božjem, ty jesi kralj izraelski.
 50 Odgovoril Jezus i rěkl mu: Že jesm ti rěkl: Viděl jesm te pod smokvoju, věriš? večše věči nad tym uzriš.
-51 I rěkl mu: Istinno, istinno povědam vam: Od togo času uzrite nebo otvorjeno i angeli božje vstupajuče i shodivše na Syna člověčskogo.
+51 I rěkl mu: Istinno, istinno povědam vam: Od togo času uzrite nebo otvorjeno i angeli Božje vstupajuče i shodivše na Syna člověčskogo.
 
 ## Razděl 2
 
@@ -148,22 +148,22 @@ September 29, 2025
 11 Istinno, istinno povědam ti, že to, čto znajemo, govorimo, a to, čto jesmo viděli, svědčimo: ale svědočstva našego ne prijmate.
 12 Kogda jesm vam zemne věči povědal, a ne věrite, kako, jestli budu vam nebeske povědati, uvěrite?
 13 A nikto ne vstupil do neba, toliko toj, ktori shodil s neba, Syn člověčsky, ktory jest v nebu.
-14 A kako Mojžeš zmiju na pralěsu vozvysil, tako musi byti vozvyšeny Syn člověčsky,
+14 A kako Mojžeš zmiju na pralěsu vozvysil, tako ima byti vozvyšeny Syn člověčsky,
 15 aby každy, kto v njego věri, ne pogynul, ale iměl věčny život.
 16 Bo tak Bog ljubil svět, že dal Syna svojego jedinstvenogo, aby každy, ktory v njego věri, ne pogynul, ale iměl věčny život.
 17 Bo ne poslal Bog Syna svojego na svět, aby sudil svět, ale aby svět byl spaseny črěz njego.
 18 Kto věri v njego, ne bude sudženy; ale kto ne věri, už jest sudženy, že ne pověril v ime jedinstvenogo Syna Božjego.
 19 A to jest sud, že světlo prišlo na svět, ale ljudi boljše ljubili temnost než světlo; bo byli zle dělesa jih.
-20 Každy bo, kto zle čini, nenavidi světla i ne ide na světlo, aby ne byli izstavjeny dělesa jego.
+20 Každy bo, kto zle čini, nenavidi světla i ne ide na světlo, aby ne byli izstavjene dělesa jego.
 21 No kto čini pravdu, prihodi k světlu, aby byli javne dělesa jego, kak v Bogu sut učinjene.
 22 Potom prišel Jezus i učeniki jego do Judejskoj zemji, i tam prěbyval s njimi i krestil.
 23 Krestil tož i Jan v Enonu, blizko Salima; bo tam bylo mnogo vod, a ljudi prihodili i krestili se.
 24 Bo ješče Jan ne byl podany do vezenja.
 25 Vozbudila se besěda medžu učenikami Jana i medžu Židami o očiščenju.
-26 I prišli do Jana i rěkli jemu: Učitelj! toj, ktory byl s toboju za Jordanom, komu jesi dal svědočstvo, toj kresti, a vsi idut do njego.
+26 I prišli do Jana i rěkli jemu: Učitelju! toj, ktory byl s toboju za Jordanom, komu jesi dal svědočstvo, toj kresti, a vsi idut do njego.
 27 Odpovědal Jan i rěkl: Ne može ničto vzeti člověk, jestli by mu ne bylo dano s neba.
 28 Vy sami jeste mi svědkami, že jesm rěkl: Ne jesm ja Hristos, ale jesm poslany prěd njim.
-29 Kto ima ženu, toj jest mladoženih, a prijatelj mladoženiha, ktory stoji, a sluha jego, veseli se dlja glasu mladoženiha; Ta radost jest moja I stala se istinoju.
+29 Kto ima ženu, toj jest mladoženih, a prijatelj mladoženiha, ktory stoji, a sluha jego, veseli se dlja glasu mladoženiha; Ta radost jest moja i stala se istinoju.
 30 On ima rasti, a ja imam smenšati se.
 31 Kto od gory prišel, nad vsim jest; kto iz zemji jest, zemny jest i zemne věči govori; toj, ktory prišel od neba, nad vsim jest.
 32 A čto viděl i slyšal, to svědči, ale svědočstva jego nikto ne prijmaje.
